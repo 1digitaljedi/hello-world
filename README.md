@@ -2,5 +2,5 @@
 
 hi beings
 
-i love to do ttjhings different
+i love to do things different
 
